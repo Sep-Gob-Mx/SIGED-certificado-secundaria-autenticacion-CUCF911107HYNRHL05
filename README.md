@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CUCF911107HYNRHL05
+CUCF911107HYNRHL05
